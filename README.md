@@ -1,2 +1,0 @@
-# aucademiau
-Mai's blog!
